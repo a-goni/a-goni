@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- I'm currently studying a bachelor's degree for Mechatronics
+- I love playing sports and keeping active
+- Im open, so feel free to get in touch :)
